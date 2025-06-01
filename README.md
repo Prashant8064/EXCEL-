@@ -70,4 +70,4 @@ Portfolio building for job interviews and internships
 📌 Contact
 For queries, feedback, or collaborations:
 Name: Prashant8064
-Email: [Add your contact email here]
+Email:Prashantgupta8064@gmail.com
